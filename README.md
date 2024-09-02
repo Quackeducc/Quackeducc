@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Quackeducc
+- 👀 I’m interested in Information Tech.
+- 📫 How to reach me quackeducc@gmail.com
+- ⚡ Fun fact: Did you know the legend that vampires can turn into bats comes from when Vlad the Impaler (the inspiration for vampires!) had his troops pull out of a battle toward the sun, causing the sun to get in his enemies' eyes. He then released lots of bats who flew away from the sun, causing it to look like the army turned into a swarm of bats (and spread disease through the enemy troops).
